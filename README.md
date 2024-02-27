@@ -9,4 +9,4 @@ Video mostrando el funcionamiento de nuestro proyecto:
 https://youtube.com/shorts/0zSURusGqvQ?feature=shared
 
 
-Gracias por visitar nuestro proyecto y esperamos les funcione!! :) 
+Gracias por visitar nuestro proyecto y esperamos que les funcione!! :) 
