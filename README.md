@@ -6,7 +6,7 @@ https://frtutneduar-my.sharepoint.com/:w:/g/personal/lourdes_gutierrez_alu_frt_u
 
 Video mostrando el funcionamiento de nuestro proyecto: 
 
-https://photos.google.com/photo/AF1QipPwS3sD58ro-pxmSPyjTl2WLSpe4LRAT97L18Wi 
+https://youtube.com/shorts/0zSURusGqvQ?feature=shared
 
 
 Gracias por visitar nuestro proyecto y esperamos les funcione!! :) 
